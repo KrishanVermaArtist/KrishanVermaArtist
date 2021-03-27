@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KrishanVermaArtist
+- 👋 Hi, I’m Krishan Verma
 - 👀 I’m interested in n Technology Products And Gadgets.
 - 🌱 I’m providing latest Tech News,Gadgets Review, Website Design, App Review, blogging & more on there YouTube channel or website.
 - ▶️ I’m Part Time Work In YouTube & Daily New New Research All in Applications.
